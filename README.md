@@ -1,0 +1,2 @@
+# premium-knot-garden-001-tudor-knot-garden-layout-plann
+Tired of sketching knot garden layouts on graph paper, only to realize your plant choices clash with Tudor era authenticity? The Tudor Knot Garden Layout Planner transforms your Notion workspace into a precision tool for designing symmetrical, period-accurate knot gardens.  This planner eliminates guesswork by providing structured templates for gar
